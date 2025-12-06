@@ -8,7 +8,7 @@
 
 🤝 I'm looking to collaborate on data science and AI projects, and always excited to learn from new challenges and teams.
 
-📫 How to reach me: **nadeemmir873@gmail.com**
+📫 How to reach me: **hello@nadeemmir.com**
 
 ---
 
